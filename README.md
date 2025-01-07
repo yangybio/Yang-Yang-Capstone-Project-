@@ -87,3 +87,4 @@ The light luxury handcrafted jewelry market is growing, but consumers often stru
 - **Custom jewelry platform** that allows users to work with designers to create bespoke pieces.
 - **Loyalty rewards program** to encourage repeat customers and foster brand loyalty.
 
+
